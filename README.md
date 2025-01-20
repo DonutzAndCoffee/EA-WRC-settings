@@ -10,4 +10,5 @@
 ![20250117_153516_MixedReality](https://github.com/user-attachments/assets/5e15e7f9-660f-48b5-8aef-d434755fedd1)
 
 ![image4](https://github.com/user-attachments/assets/5dbdee04-6570-4050-98f2-04f0ec75fb5e)
+![grafik](https://github.com/user-attachments/assets/ec9e1cf0-e191-4f31-9005-e9cd2aa6d7b3)
 
